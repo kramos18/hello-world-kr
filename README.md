@@ -12,3 +12,5 @@ kr
 kr
 
 kr
+
+i CAN'T believe i'm learning this.
